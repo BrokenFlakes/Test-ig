@@ -7,15 +7,20 @@
 ⎯⎯ ୨ ᠻꪖꪀᧁ ୧ ⎯⎯
 
 .♯ - 'If i Block/Hide u its because of a reason TOO deep'
-.⚘ - Minor! (13-17) under 13 dni ! sorry ! 
-.✿ - Pjsk - Roblox - PonyTown - Brawl Stars `` -> PLAYER!
-. 𓏵 - Lesboy | Genderfawn | Polyamorous! .
-.✮ - DON'T take inspo (without permission) Ask first.
-.✷ - C × H freely ! dont be shy !! (unless stated in name)
-.✦ - If ur problematic, please Strictly dni: 
-. . . . . . . . . . . . . . . . . .[Example: Dark/Pro shippers]
 
-﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋
+.⚘ - Minor! (13-17) under 13 dni ! sorry !
+
+.✿ - Pjsk - Roblox - PonyTown - Brawl Stars `` -> PLAYER!
+
+. 𓏵 - Lesboy | Genderfawn | Polyamorous! .
+
+.✮ - DON'T take inspo (without permission) Ask first.
+
+.✷ - C × H freely ! dont be shy !! (unless stated in name)
+
+.✦ - Pro/Dark shippers, STRICTLY dni, im trying to heal...
+
+﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋﹋
 !! Blocking/Hiding freely , unblock/unhiding unless u stop. 
 
 ![Image](https://github.com/user-attachments/assets/c243a0a1-89ee-4fbf-8911-8d702540cc37)
@@ -23,13 +28,17 @@
 ![Image](https://github.com/user-attachments/assets/e8a73c3c-83c0-483e-a3d8-e0007c7e4799)  ![Image](https://github.com/user-attachments/assets/6575dd93-4947-4fc5-ab7a-a4876cfb4a07)  ![Image](https://github.com/user-attachments/assets/ba60784d-e17d-4ea7-bc3b-58c6cd9a453f) ![Image](https://github.com/user-attachments/assets/d39db850-4c1d-4c6f-862d-dee4ba876db9) ![Image](https://github.com/user-attachments/assets/3009b24e-9928-4bab-94fb-ed08efa06d25)
 
 **CEO OF: 
-PAINTCAKE (cosmo x brusha) GACHARESEARCH (gigi x rodger) ORNAMENTBASKET (bassie x bobette) CHOCOWOLF (cocoa x eclipse)
-!!im the 2 CEO of chocowolf btw!!**
+
+PAINTCAKE (cosmo x brusha) 
+GACHARESEARCH (gigi x rodger)
+ORNAMENTBASKET (bassie x bobette)**
 
 `hehe.... yumeship.... giggles.... (Bobette x Me) ᯓᡣ𐭩`
 
 **kins! :**
-Bobette , Bassie , Connie , Gourdy , Pebble , Astro , Shelly , Collector
+Bobette , Bassie , Connie , Gourdy , Pebble , Astro , Shelly , Collector.
+
+
 GOURDY: Fear to lost a person who u loved.
 PEBBLE: Whishing to escape and find the exit 
 Not explaining other kins bcs im lazy ok? 😓
